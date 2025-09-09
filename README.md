@@ -1,6 +1,6 @@
 ## Hi there 👋 my name is Lisa and I'm a Head Hunter 🌵
 
-_Me when companies ask me for the unicorn candidate of the moment_
+_Me when companies ask me for the unicorn candidate ASAP_
 
 <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExOW5ycGoycjVscnlmYnRnbGJxbjZqZnFxOW0zc2V3Y210YWNiejQxeCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/ounv1hey86r5DM6WhP/giphy.gif" width="400"/>
 
