@@ -1,6 +1,7 @@
 ## Hi there 👋 my name is Lisa and I'm a Head Hunter 🌵
 
 _Io quando le aziende mi chiedono il/la candidato/a UNICORNO di turno_
+
 <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExOW5ycGoycjVscnlmYnRnbGJxbjZqZnFxOW0zc2V3Y210YWNiejQxeCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/ounv1hey86r5DM6WhP/giphy.gif" width="400"/>
 
 ## 🙋🏻‍♀️ I’m 26 years old and always eager to learn, build, and connect with people in the **tech ecosystem**.  
