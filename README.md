@@ -1,4 +1,4 @@
-## Hi there 👋 my name is Lisa and I'm a Head Hunter 🌵
+## Hi there 👋 my name is Lisa and I'm an Head Hunter 🌵
 
 _Me when companies ask me for the unicorn candidate ASAP_
 
